@@ -12,3 +12,6 @@
 - e mais uma coisa avante meu tricolor
 oh oh ooooooooooooooo
 avante meu tricolor 🖤❤️🤍
+
+![]()
+![image](https://github.com/user-attachments/assets/43aba92f-b7d9-40ae-88ff-01f8ffb2f65a)
