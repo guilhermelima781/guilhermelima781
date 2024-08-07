@@ -1,10 +1,14 @@
-#### slw slw rapaziada 
+#### slw slw rapaziada 🤟🏾🤟🏾
 
-sei q nn enteresa mais meu nome é Guilherme lima
+- sei q nn enteresa mais meu nome é Guilherme lima 🏷️🏷️
+- to no alura 😮‍💨😮‍💨
+- torcedor tricolor de alma pq o coração parar 🇮🇶🏟️🏟️🇮🇶
+- e jogo basket pra karai em 🏀🏀
 
-- to no alura
-- torcedor tricolor de alma pq o coração parar
+### da um slw no insta ou no watts 🤙🏾🤙🏾
 
-### da um slw no insta  
+@f4lso_rei 📬📱+55(11)939403733
 
-@f4lso_rei
+- e mais uma coisa avante meu tricolor
+oh oh ooooooooooooooo
+avante meu tricolor 🖤❤️🤍
